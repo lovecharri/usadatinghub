@@ -2,11 +2,14 @@
 
 Welcome to the official GitHub repository of [USA Dating Hub](https://usadatinghub.site/meet-hot-dating-girl/)!
 
-🎯 Click here to meet hot girls, chat, sext, and date for free:  
-👉 **[Visit Now](https://usadatinghub.site/meet-hot-dating-girl/)**
+🎯 Looking for real, hot, and free online dating?  
+👉 **[Click here to visit now](https://usadatinghub.site/meet-hot-dating-girl/)**
 
-This website is built using Elementor & fully optimized for mobile and desktop users. It’s completely free and safe for adults.
+✅ 100% free registration  
+✅ Real sexy girls  
+✅ Video call, sexting, nudes, private chat
 
 ---
 
-💖 Powered by LoveCharri
+📍 Website: [usadatinghub.site](https://usadatinghub.site/meet-hot-dating-girl/)  
+👩‍💻 Powered by [LoveCharri](https://github.com/lovecharri)
